@@ -1,2 +1,3 @@
-# about-liine
-Know more about amazing culture and mission.
+# **LIINE ENTERTAINMENT**
+Know more about amazing our culture and mission.
+
